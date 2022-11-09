@@ -11,4 +11,4 @@
 
 
 
-opyright© 2022 MYcreeper876
+copyright© 2022 MYcreeper876
